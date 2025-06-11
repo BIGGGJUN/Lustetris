@@ -1,1 +1,3 @@
 # Lustetris
+
+strip tetris 💀💀💀💀
